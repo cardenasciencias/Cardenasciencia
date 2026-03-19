@@ -1,4 +1,4 @@
-# Rosa María Cárdenas Rodríguez
+# Rosa María Cardenas Rodriguez
 
 ### Physics | Oceanography | Numerical Modelling
 
